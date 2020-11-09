@@ -1,1 +1,35 @@
-# masterbate
+# 34 Ways to Say Masterbate
+- Jerk off
+- Jack off
+- Toss off
+- Double click
+- Bring oneself off
+- Beat one's meat
+- Beat the meat
+- Beatmeat
+- Personal massage
+- Frig
+- Whack off
+- Spank off
+- Rub it out
+- Run one out
+- Kill the kittens
+- Vibrate the toothbrush
+- Palmela handerson
+- Beat the fireman
+- Pinnochio
+- Handle my business
+- Diggipun
+- Tommy tank
+- Shake the marker
+- Driving stick shift
+- Polishing the one eyed gopher
+- Touch basis
+- Quizzing the captain
+- Yank your crank
+- Smackledorff
+- MTC
+- Bathroom shakies
+- $5 5-inch
+- Poor mans valium
+- Abstinence
