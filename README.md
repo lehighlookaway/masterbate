@@ -1,4 +1,4 @@
-# 34 Ways to Say Masterbate
+# 34 Ways to Say Masturbate
 - Jerk off
 - Jack off
 - Toss off
